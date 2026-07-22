@@ -1,16 +1,17 @@
-## Hi there 👋
+## Hi there :)
 
-<!--
-**Lijahsaur/Lijahsaur** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I am Elijah, a final year Emerging tech student  based in South Africa,
+I try to uncover hidden meanings in everything
 
-Here are some ideas to get you started:
+Hopefully a bunch of projects will be completed soooooooon! Stay tuned!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+Fun facts:
+•I have a dog that may be possessed.
+•I am a hot beverage lover
+•Horimiya is peak ... argue with the wall
+•Hobbies : anime,reading,art
+
+
+
+
